@@ -8,6 +8,5 @@
  /okayu (Random Okayu picture /ᐠ｡ꞈ｡ᐟ\ )<br>
  
  **Spacial Thank**<br>
- 
  https://www.youtube.com/watch?v=3Iegimr8Qc0
  
