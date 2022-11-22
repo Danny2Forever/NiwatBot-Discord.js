@@ -1,4 +1,4 @@
-# NiwatBot-Discord.js
+# NiwatBot Discord.js
  Use for Discord 
  
  **Example Command** <br>
